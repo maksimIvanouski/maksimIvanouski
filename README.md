@@ -40,4 +40,6 @@ I use GitHub to share my university projects, course assignments, and small pers
 
 - GitHub: [maksimIvanouski](https://github.com/maksimIvanouski)
 - LinkedIn: [Maksim Ivanouski](https://www.linkedin.com/in/maksim-ivanouski-65ab68403/)
+- Whatsapp: [Maksim](https://wa.me/qr/3ODOZ3DMA4KHM1)
+- Instagram [supermaks999](https://www.instagram.com/supermaks999?igsh=cHdocDN2OWRqcDhn)
 
